@@ -1,1 +1,1 @@
-# rsschool-cv
+https://lustrochka.github.io/rsschool-cv/cv
